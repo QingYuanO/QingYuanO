@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **qingyuano@foxmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me wechat:</h3> lvye_shamo
 <p align="left">
 </p>
 
